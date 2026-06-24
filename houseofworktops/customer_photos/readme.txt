@@ -1,0 +1,1 @@
+Customer photos for test
